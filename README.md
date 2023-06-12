@@ -8,4 +8,3 @@ Here is what i made so far
 
 ![Test](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/c9688daf-1981-4bf9-90b0-ec29436839d1)
 ![NOOM](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/d6452c96-b9e1-430f-9b22-afa4560d7778)
-![kous](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/2ec66f54-a31e-4578-a361-0b9e2634227f)
