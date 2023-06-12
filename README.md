@@ -3,7 +3,8 @@ I wanna save up robux to buy a drawing tablet so i can do drawing commisions. Bu
 Thank you for either visiting or buying. Have a good day :)
 
 (Im still learning at the moment so please dont expect much if i do go public XD)
-
+Discord - Hisen#9777
+Kick - ItzMxxn
 Here is what i made so far
 
 ![Test](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/c9688daf-1981-4bf9-90b0-ec29436839d1)
