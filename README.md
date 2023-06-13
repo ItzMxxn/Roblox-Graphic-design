@@ -9,3 +9,5 @@ Here is what i made so far
 
 ![Test](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/c9688daf-1981-4bf9-90b0-ec29436839d1)
 ![NOOM](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/d6452c96-b9e1-430f-9b22-afa4560d7778)
+![Yt banner](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/6739c82e-531b-4acb-bcf6-528152b21847)
+![me](https://github.com/ItzMxxn/Roblox-Graphic-design/assets/136386082/b27e91e5-3fd6-4bc5-8b1c-7a6c05a0f08f)
